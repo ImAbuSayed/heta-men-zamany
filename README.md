@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي في قلبي نار الأشواق
+> عيني تسهر والروح لك تشتاق
+> تعالى نعيش الحب في كل ليلة
+> دقات قلبي تنادي لك بعناق
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
